@@ -1,0 +1,1 @@
+Cindy and Dean's dysfunctional marriage fails to stand the test of time as they try to raise their young daughter and rekindle their relationship.
