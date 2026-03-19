@@ -1,0 +1,1 @@
+After his brother's death, Lee Chandler is named guardian to his 16-year-old nephew, Patrick. This forces him to return to his hometown and confront his past.
